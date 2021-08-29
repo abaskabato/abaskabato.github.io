@@ -5,8 +5,8 @@ Hi 👋, My name is Abas. I am a techie tinkerer based in Seattle, Washington. C
 ## [Latest Thinking](https://medium.com/@abaskabato)
 
 
-       ✉:abaskabato@gmail.com | ✆ 347-450-0645-Text  
-##### [Schedule a meeting](https://calendly.com/talk2abas)
+        
+##### [Schedule a meeting](https://calendly.com/talk2abas) | ✉:abaskabato@gmail.com | ✆ 347-450-0645-Text 
 
 
 
