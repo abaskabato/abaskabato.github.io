@@ -1,12 +1,11 @@
-Hi 👋, My name is Abas. I am a techie tinkerer based in Seattle, Washington. Currently working with Amazon Operations Technology Team and Consulting with Pella Corporation.  I am also certified  Coffee☕ drinker and Taco🌮 eater.
+Hi 👋, My name is Abas. I am a techie tinkerer based in Seattle, Washington. Currently working with Amazon Operations Technology Team and Consulting with Pella Corporation & TECKpert.  I am also certified  Coffee☕ drinker! 
 
-## [About Me]( https://tinyurl.com/ybn4reya)
+## [About Me]( https://tinyurl.com/4tm7j5w8 )
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
 ## [Latest Thinking](https://medium.com/@abaskabato)
-## [Short Term Project? Let's Upwork It](https://www.upwork.com/freelancers/~0131d39aa599685c02?viewMode=1)
-## [Are you working on Start Up? Let's Talk](https://calendly.com/talk2abas)
 
-       ✉:abaskabato@gmail.com | ✆ 347-450-0645-Text 
+
+       ✉:abaskabato@gmail.com | ✆ 347-450-0645-Text  | ## [Schedule a meeting](https://calendly.com/talk2abas) 
 
 
 
