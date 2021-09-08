@@ -2,8 +2,7 @@ Hi 👋, My name is Abas. I am a techie tinkerer based in Seattle, Washington. C
 
 ## [About Me]( https://tinyurl.com/ym9msemv )
 ## [Linkedin](https://www.linkedin.com/in/abas-kabato/)
-## [Latest Thinking](https://medium.com/@Abas_Kabato
-)
+## [Latest Thinking](https://medium.com/@Abas_Kabato)
 
 
         
